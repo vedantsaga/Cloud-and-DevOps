@@ -4,7 +4,7 @@
 
 ## having language barrier i have a aim to break and with grace of LORD HANUMAN it'll be ueful for sstudents will get better knowledge.
 
-_I'm checking italic here for the line_**Oh My GOF!! It's happened !**
+_I'm checking italic here for the line_**Oh My GOD!! It's happened !**
 
 **Now im going to test number tree here**
 1. hello
